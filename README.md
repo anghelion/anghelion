@@ -12,6 +12,7 @@ Languages I know: JavaScript, TypeScript, Python, Java.
 
 My socials are listed below
 Mail me at anghelion.swe@gmail.com regarding any work or if you just wanna connect
+
 〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️〰️
 
 My work experience
